@@ -1,7 +1,5 @@
-Hi! 👋
+I'm an experienced, full-stack designer that builds engaging digital products. I love challenging perceptions around what is technically possible if it'll preserve a design's integrity.
 
-My name's Dan and I'm a cross-disciplinary designer. I get a kick out of creating notable, digital experiences. With an intimate understanding of design and development, I'm well placed to solve problems in both camps.
+My in-depth understanding of design and development allow me to be flexible and effective. I can take part during any stage of a project, expedite better communication between teams, and make informed decisions that consider the constraints of both disciplines.
 
-One of my favourite quotes is "God is in the detail". This is because I think sweating the small stuff can pay big dividends. Taking this approach while managing a project's scope is a balancing act, but an incredibly rewarding one when you deliver quality on time and on budget.
-
-If you have a project or opportunity and suspect that I might be your guy, then don't be a stranger. I'd love to chat!
+If you have a position or a project that I'd be suitable for, then I'd love to hear from you.

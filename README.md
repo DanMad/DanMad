@@ -1,4 +1,4 @@
-I’m a product designer specialising in design systems, dedicated to preserving design integrity by pushing technical boundaries. I combine creativity and precision to continuously elevate the quality of my output.
+I’m a product designer who codes, with a focus on design systems, dedicated to preserving design integrity by pushing technical boundaries. I think in systems *and* sweat the details.
 
 With a deep understanding of both design and development, I’m able to be flexible and efficient. I make informed, balanced decisions within the constraints of both disciplines, bridge communication between teams, and thrive during every stage of a project.
 
